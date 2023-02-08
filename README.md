@@ -2,7 +2,7 @@
 <!DOCTYPE html>
 <html>
   <head>
-    <title>Why the Los Angeles Lakers are Undoubtedly Greater than the Boston Celtics</title>
+   
   </head>
   <body>
     <h1>Why the Los Angeles Lakers are Undoubtedly Greater than the Boston Celtics</h1>
