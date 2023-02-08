@@ -15,8 +15,8 @@ Ultimately, the success and greatness of a team can be subjective and depend on 
     <p>Both the Lakes and Celtics each have 17 championships, however when you actually analyse it most of Boston’s rings came when there was around eight teams in the league while the lakers won in multiple different era’s during the 1950’s and 60’s the Celtics had a complete stranglehold on the NBA due to them having multiple hall of farmers with the lead player Bill Rusell tho the did win 3 in the 80's while the lakers on the other hand won 5. the celtics have not won a championship since 2008 while the lakers won in 2009, 2010, and 2020. Do not forget about the 3 peat lakers with Shaq and Kobe</p>
     <h2>Point Number Two: The Lakers have better players that played for their franchise</h2>                                                                                                                               
     <p>George Mikan, Jerry West, Elgin Baylor, Wilt Chamberlian, Kareem Abdul-Jabbar, Magic Johnson, Shaquille O'neal, Kobe Bryant and Lebron James. All these players are atleast top 50 nba players of all time. while celtics have the likes of Bill Russell and Larry bird but nobody else stands out. So if each of these teams played each other all time wise the lakers would win easily</p>
-    <h2>Point Number Three: The Lakers have beaten the Celtics more in the finals.</h2>
-    <p>                                                                                                                                                                                                                                                       
+    <h2>Conclusion</h2>
+    <p>Although it may seem like they are equal theres more context to it when you look at the details and the Lakers win easily.</p>                                                                                                                                                                                                                                                       
   </body>
 </html>
 
